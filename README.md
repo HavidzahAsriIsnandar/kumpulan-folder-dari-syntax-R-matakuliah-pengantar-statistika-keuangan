@@ -1,0 +1,1 @@
+# kumpulan-folder-dari-syntax-R-matakuliah-pengantar-statistika-keuangan
